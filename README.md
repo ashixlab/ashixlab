@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate on **Deep Learning Projects**
 
-- 📫 How to reach me **ashishbaraiya.ce21@sltiet.edu.in**
+- 📫 How to reach me **ashishbaraiya0416@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
